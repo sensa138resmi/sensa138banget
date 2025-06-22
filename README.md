@@ -3,4 +3,4 @@ SENSA138 hadir sebagai platform digital yang selalu mengikuti perkembangan zaman
 
 Selain dikenal sebagai tempat berkumpulnya komunitas aktif, SENSA138 juga rutin menghadirkan event digital dan sharing session yang dapat diikuti oleh siapa saja. Dukungan layanan profesional serta sistem keamanan modern membuat para pengguna merasa lebih nyaman dan betah.
 
-Untuk kamu yang ingin bergabung dengan komunitas digital yang positif dan inovatif, SENSA138 bisa menjadi pilihan tepat. Rasakan sensasi online yang berbeda di [SENSA138](https://merlynnparkhotels.com/)/) sekarang juga!
+Untuk kamu yang ingin bergabung dengan komunitas digital yang positif dan inovatif, SENSA138 bisa menjadi pilihan tepat. Rasakan sensasi online yang berbeda di [SENSA138](https://merlynnparkhotels.com/) sekarang juga!
